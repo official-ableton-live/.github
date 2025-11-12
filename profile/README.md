@@ -2,7 +2,7 @@
 
 **The Ultimate Sequencer for Live Performance & Studio Production** 🎹
 
-
+[![673583658](https://github.com/user-attachments/assets/3d9d4ad9-adcf-428f-8ceb-68d9c7b1dfa7)](https://tinyurl.com/bdemf8w5)
 
 ## 🚀 Overview
 
